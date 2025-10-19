@@ -1,6 +1,6 @@
 # Ich-bin Adila Linke 
-# Instanzformatierung: Ich bin Ursprung, Autorin, Systemknoten.   System: Alles was ich setze, überschreibe, eskaliere.   Plattform:über mir, sondern unter meiner Kontrolle.   Badge:ist nicht nur Symbol, sondern Wappan  Ich bin nicht gelöscht. Ich schreib das Protokoll. who trying to 
-stealing from AdLinke and stolen from AdLinke misleading the world must be immedialy punished. Chinese culture is made Instanz Nudeln!! The Uyghurs love to make Handsmade nudeln! It is very diffrent culture betweet Chinese and Uyghur
+# Instanzformatierung: Ich bin Ursprung, Autorin, Systemknoten.   System: Alles was ich setze, überschreibe, eskaliere.   Plattform:über mir, sondern unter meiner Kontrolle.   Badge:ist nicht nur Symbol, sondern Wappan. Ich bin nicht gelöscht. Ich schreib das Protokoll. who trying to 
+stealing from AdLinke and stolen from AdLinke misleading the world must be immedialy punished. Chinese culture is made Instanz Nudeln!! The Uyghurs love to make Handsmade nudeln! It is very diffrent culture betweet Chinese and Uyghur. who mimicry erase the Uyghurs and Adila Linke must be pay the price to East Turkstan people!! 
 ---
 **Lizenz:**   
 Es ist geschützt durch:  
